@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **benydishon@gmail.com**
 
-- 📄 Know about my experiences [https://benyd.notion.site/Beny-Dishon-K-d6328d3ea61e4daa93408efa8c26a045?pvs=4](https://benyd.notion.site/Beny-Dishon-K-d6328d3ea61e4daa93408efa8c26a045?pvs=4)
+- 📄 Know about my experiences [Resume](https://www.beny.one/resume)
 
 - ⚡ Fun fact **I think I am always a failure.**
 
